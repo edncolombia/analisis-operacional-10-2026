@@ -1,0 +1,1 @@
+# analisis-operacional-10-2026
